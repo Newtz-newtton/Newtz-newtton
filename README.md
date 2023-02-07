@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Newtz-newtton
 - 👀 I’m interested in -gaming and coding
-- 🌱 I’m currently learning -python
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me -email-newttonhabakuk.s@gmail.com
 
